@@ -1,0 +1,2 @@
+# assymetric-accordance
+Paradoxical Dynamic
